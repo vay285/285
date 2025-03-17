@@ -2,7 +2,7 @@ Size Vaycasino yerine çok daha iyi bir slot sitesini öneriyoruz.
 
 Avrupanın en iyi slot sitesi bu aya özel olarak yeni kayıt olan kullanıcılara %300 hoşgeldiniz promosyonu ve ücretsiz çevrimler veriyor. Kayıt olarak bu fırsattan yararlanabilirsiniz
 
-# [KAYIT OLMAK VE %300 HOŞGELDİN BONU SU ANINDA ALMAK İÇİN TIKLAYIN](https://n9.cl/pj6gk)
+# [KAYIT OLMAK VE %300 HOŞGELDİN BONU SU ANINDA ALMAK İÇİN TIKLAYIN](http://1.shor.tn/vay)
 
 <br>
 <br>
